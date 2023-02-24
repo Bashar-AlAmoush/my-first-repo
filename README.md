@@ -2,10 +2,11 @@
 
 **i'm 22 years old**
 
+***
 
 *undergraduate software engineering*
 
-***
 
-``just one semester to graduate``
+
+~~just one semester to graduate~~
 
