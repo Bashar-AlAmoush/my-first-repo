@@ -9,3 +9,6 @@
 ~~just one semester to graduate~~
 ***
 [my instagram](https://www.instagram.com/omushb/)
+
+***
+![alt text](‪C:\Users\Orange\Desktop\me.jpg)
