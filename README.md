@@ -8,4 +8,4 @@
 
 ~~just one semester to graduate~~
 ***
-[Link Text](https://www.instagram.com/omushb/)
+[my instagram](https://www.instagram.com/omushb/)
