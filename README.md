@@ -11,4 +11,4 @@
 [my instagram](https://www.instagram.com/omushb/)
 
 ***
-![my picture](/‪C:\Users\Orange\Desktop\me.jpg)
+![me](https://user-images.githubusercontent.com/126269525/221239863-d7558c0e-aa6e-4485-8e68-5a58b1fd38d5.jpg)
